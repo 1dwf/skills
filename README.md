@@ -1,0 +1,1 @@
+Objeto futuro de estudo
